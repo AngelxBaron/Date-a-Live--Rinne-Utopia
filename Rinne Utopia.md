@@ -26,4 +26,11 @@ https://mega.co.nz/#!fFFgnbwS!B9YZekgFs_PxwG121a0WdHL4aw94jsRDw3qVHNGSg38
 春。五河士道は初めて精霊と邂逅し、その少女を救った。それから士道の前に立て続けに現れる精霊たち。精霊との対話を目指す機関〈ラタトスク〉の協力を得て、士道は少女たちを救おうと奮闘していく。初夏。制服が夏服になってしばらく経ったある日の事。天宮市が、突如発生した巨大結界に閉じ込められた。抜け出
 
 
+Date a Live (DATE A MUSIC EXTENSION)
+デート・ア・ライブ (DATE A MUSIC EXTENSION)
+
+[https://mega.co.nz/#!vF8myAwa!keJvXNoFd-c_6C55IZ5aXFNpzT82m40R5L2q31vfJPA
+
+6月27日(木)にコンパイルハート社より発売されたPlayStationR3専用ソフト「デート・ア・ライブ 凜祢ユート ア」内で使用されるBGMに加えて、 鳶一折紙(CV:富樫美鈴)と村雨令音(CV:遠藤綾)、そして宗宮真 (CV:味里)のキャラクターソングも収録予定のアルバムです。
+
 
